@@ -1,0 +1,1 @@
+# tipa_ya_sdelal_slide
